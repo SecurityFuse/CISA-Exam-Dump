@@ -3,7 +3,7 @@ CISA Practice Exam
 
 **LIMITED DISCOUNT**
 
-**https://www.udemy.com/course/inforamtion-systems-auditor-cisa-practice-exam/?couponCode=LIMITEDNOV**
+**https://www.udemy.com/course/inforamtion-systems-auditor-cisa-practice-exam/?couponCode=LIMITEDFORAPR**
 
 Are you preparing for the **Certified Information Systems Auditor (CISA)** exam? Our **CISA** practice exam course on Udemy is designed to help you ace the exam by providing you with realistic practice questions and detailed explanations for each answer.
 
